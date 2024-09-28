@@ -8,7 +8,7 @@ Thenns hunt crows in order to eat them.
 
 ---------
 
-I rate the looks of the pompous and half-naked female retards at most 6/7. Very rarely 8 and the 8s might not be that retarded but there is no way for me to know this just by looking at them for a while. They go to expensive, exclusive, prestigious places that I do not go to but I have seen a few of them at clubs. So a Thenn cannot look like a 9 or a 10.
+I rate the looks of the pompous and half-naked female retards at most 6 or 7. Very rarely 8 and the 8s might not be that retarded but there is no way for me to know this just by looking at them for a while. They go to expensive, exclusive, prestigious places that I do not go to but I have seen a few of them at clubs. So a Thenn cannot look like a 9 or a 10.
 
 [**Link 1**](https://youtu.be/-EtzZ8Zo8Rw?si=SoZdQfjR0YAqHZjh) | 
 [Link 2](https://youtu.be/wAagtJppv_E?si=VwXZH_JChcQI7E0r) | 
